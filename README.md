@@ -1,2 +1,2 @@
 # Amazon_Website_CLONE
-The amazon website cloned! Please Note that this is a d nothing is being sold FAKE WEBSITE, nothing can be bought an
+The amazon website cloned! Please Note that this is a FAKE WEBSITE, nothing can be bought and nothing is being sold.
